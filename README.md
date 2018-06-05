@@ -1,2 +1,0 @@
-# alidayu
-alidayu
